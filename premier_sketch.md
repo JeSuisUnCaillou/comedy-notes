@@ -6,17 +6,19 @@ Pioché dans mes notes sur Keep.
 
 Gnagnagna, y'a des couples dans la salle ce soir ? Gnagnagna
 
-Quand on a un couple en général, il y a plein de petites batailles au quotidien. Il y en a que tu perds. Il y en a que tu gagnes. Il y en a qui sont importantes, et il y en a qui servent à rien. Souvent c'est celles qui servent à rien que tu gagnes. Moi je vais vous parler d'une bataille absurde j'ai eue avec ma copine : **La bataille du nombril.**
+Dans un couple en général, il y a plein de petites batailles au quotidien. Il y en a que tu perds. Il y en a que tu gagnes. Il y en a qui sont importantes, et il y en a qui servent à rien. Souvent c'est celles qui servent à rien que tu gagnes.
 
-Un jour pour déconner j'ai mis mon doigt dans son nombril eeet elle a une réaction assez forte pour me dégager ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si on appuie dans son nombril ça va la rendre malade. Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade.
+Moi je vais vous parler d'une bataille absurde j'ai eue avec ma copine : **La bataille du nombril.**
 
-Du coup moi j'ai commencé par rire, _beaucoup_ - oui par ce que j'adore l'absurde - et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a expliqué que sa mère lui avait dit ça quand elle était petite. Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels - donc des arguments qui ne marchent pas.
+Un jour pour déconner j'ai mis mon doigt dans son nombril eeet elle a une réaction assez forte pour me dégager ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si elle appuie dans son nombril ça va la rendre malade. Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade.
 
-J'ai pas réussi à la convaincre, je crois que je lui ai un peu mis le doute mais elle est quand même assez têtue donc elle pense toujours que le nombril peut rendre malade. Donc moi, logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout _d'un an de doigt-nombril quotidien_.
+Du coup moi j'ai commencé par rire, _beaucoup_ - oui par ce que j'adore l'absurde - et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels - donc des arguments qui ne marchent pas.
+
+J'ai pas réussi à la convaincre, je crois que je lui ai un peu mis le doute mais elle est quand même assez têtue, elle pense toujours que le nombril peut rendre malade. Donc moi, logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout _d'un an de doigt-nombril quotidien_.
 
 Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
 
-Mais attend, c'est pas encore tout à fait terminé.
+(Mais attend, c'est pas encore tout à fait terminé)
 
 Un jour, pour me faire arrêter, elle m'a expliqué que c'était juste désagréable pour elle, et que du coup je devais arrêter de le faire pour respecter un peu ses sentiments quoi. Ce qui s'entend, ce qui s'entend. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
 
