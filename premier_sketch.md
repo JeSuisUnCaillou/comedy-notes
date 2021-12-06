@@ -4,9 +4,10 @@ Pioché dans mes notes sur Keep.
 
 # La bataille du nombril
 
-Gnagnagna, y'a des couples dans la salle ce soir ? Gnagnagna
+- y'a des couples dans la salle ce soir ?
+- En ce moment je suis en couple
 
-Dans un couple en général, il y a plein de petites batailles au quotidien. Il y en a que tu perds. Il y en a que tu gagnes. Il y en a qui sont importantes, et il y en a qui servent à rien. Souvent c'est celles qui servent à rien que tu gagnes.
+Dans un couple en général, il y a plein de petites batailles au quotidien. Il y en a qui sont importantes, et il y en a qui servent à rien. Il y en a que tu perds. Il y en a que tu gagnes. Souvent c'est celles qui servent à rien que je gagne.
 
 Moi je vais vous parler d'une bataille absurde j'ai eue avec ma copine : **La bataille du nombril.**
 
@@ -18,17 +19,15 @@ J'ai pas réussi à la convaincre, je crois que je lui ai un peu mis le doute ma
 
 Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
 
-(Mais attend, c'est pas encore tout à fait terminé)
 
 Un jour, pour me faire arrêter, elle m'a expliqué que c'était juste désagréable pour elle, et que du coup je devais arrêter de le faire pour respecter un peu ses sentiments quoi. Ce qui s'entend, ce qui s'entend. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
 
+Mais c'est pas terminé !
+
 Mais un jour j'étais allongé à côté d'elle et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, on discutait tranquilles, et j'y pensais même pas. Elle m'a juste gentiment retiré la main pendant qu'on parlait et... et j'ai fait attends attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
 
-Ca m'a rendu fou ! Tant d'absurdité condensée _dans la vie réelle_, j'ai fait une overdose d'absurde. J'adore ça l'absurde hein, mais _dans les films_ en fait.
+Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Tant d'absurdité condensée _dans la vie réelle_, j'ai fait une overdose d'absurde.
 
-Du coup maintenant, régulièrement, je la nargue en mettant on doigt dans mon nombril, comme un enfant de 4 ans "na nana na na !" juste pour la voir acccourir m'enlever le doigt, et expériencer l'absurdité de cette situation en live. Mieux que Rubber, j'vous jure. Et Rubber, c'est l'histoire d'un pneu serial killer, alors j'peux vous dire qu'y a du niveau !
+Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans "na nana na na !" juste pour la voir acccourir m'enlever le doigt, et savourer l'absurdité de cette situation en live.
 
 Une fois on est arrivé à se chamailler est tellement qu'elle aurait vraiment pu m'arracher un peu de peau de nombril en essayent de m'en retirer le doigt. Et là je me suis fugacement imaginé aller à l'hôpital expliquer à un médecin comment je me suis retrouvé avec le nombril arraché par ce que ma copine est têtue et que moi je suis un emmerdeur.
-
-Ah bah là j'ai joui hein. Moi l'absurde j'adore ça.
-
