@@ -16,9 +16,9 @@ Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade. Quelle m
 
 Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments qui ne marchent pas, voilà.
 
-J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Donc moi, logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout _d'un an de doigt-nombril quotidien_.
+J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Donc moi, logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout _d'un an de doigt-nombril quotidien_. Mais toujours pas !
 
-Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
+Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi. 
 
 
 Un jour, pour me faire arrêter, elle m'a expliqué que c'était juste désagréable pour elle, et que du coup je devais arrêter de le faire pour respecter un peu ses sentiments quoi. Ce qui s'entend, ce qui s'entend. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
@@ -38,3 +38,17 @@ Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon 
 
 
 Une fois on est arrivé à se chamailler est tellement qu'elle aurait vraiment pu m'arracher un peu de peau de nombril en essayent de m'en retirer le doigt pendant que je forçait pour le garder dedans. Ce jour là, j'ai lâché l'affaire, par ce que sinon, une fois à l'hopital avec le nombril déchiré qui saigne de partout, elle m'aurait dit "AHA ! tu vois, je le _savais_"
+
+
+## Key points
+
+- en couple, y'a des batailles
+- elle me retire le doigt violamment
+- les arguments rationnels ne marchent pas
+- un an de doigt-nombril quotidien, super plan pour se faire aimer
+- me demande d'arrêter par respect
+- elle me retire mon doigt de mon nombril
+- overdose d'absurdité
+- expériences scientifiques
+- la narguer de loin
+- a l'hopital "tu vois, je le savais"
