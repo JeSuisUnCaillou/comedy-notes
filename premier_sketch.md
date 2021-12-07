@@ -2,6 +2,20 @@
 
 Pioché dans mes notes sur Keep.
 
+
+## Key points
+
+1. en couple, y'a des batailles
+2. elle me retire le doigt violamment
+3. les arguments rationnels ne marchent pas
+4. un an de doigt-nombril quotidien, super plan pour se faire aimer
+5. me demande d'arrêter par respect
+6. elle me retire mon doigt de mon nombril
+7. overdose d'absurdité
+8. expériences scientifiques
+9. la narguer de loin
+10. a l'hopital "tu vois, je le savais"
+
 # La bataille du nombril
 
 - Y'a des gens en couple dans la salle ce soir ? _Peu de réactions_ Ah ouais, vous êtes en chien
@@ -39,16 +53,3 @@ Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon 
 
 Une fois on est arrivé à se chamailler est tellement qu'elle aurait vraiment pu m'arracher un peu de peau de nombril en essayent de m'en retirer le doigt pendant que je forçait pour le garder dedans. Ce jour là, j'ai lâché l'affaire, par ce que sinon, une fois à l'hopital avec le nombril déchiré qui saigne de partout, elle m'aurait dit "AHA ! tu vois, je le _savais_"
 
-
-## Key points
-
-- en couple, y'a des batailles
-- elle me retire le doigt violamment
-- les arguments rationnels ne marchent pas
-- un an de doigt-nombril quotidien, super plan pour se faire aimer
-- me demande d'arrêter par respect
-- elle me retire mon doigt de mon nombril
-- overdose d'absurdité
-- expériences scientifiques
-- la narguer de loin
-- a l'hopital "tu vois, je le savais"
