@@ -14,7 +14,7 @@ Pioché dans mes notes sur Keep.
 7. overdose d'absurdité
 8. expériences scientifiques
 9. la narguer de loin
-10. a l'hopital "tu vois, je le savais"
+10. à l'hopital "tu vois, je le savais"
 
 # La bataille du nombril
 
