@@ -54,9 +54,9 @@ Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'a
 Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Tant d'absurdité condensée _dans la vie réelle_, j'ai fait une overdose ! Ça m'a CASSÉ ! Je touche MON nombril, et ça la dérange ELLE ! *mime tête qui explose*
 
 Alors je me suis mis à faire des expériences scientifiques, pour tester les limites et tout: *mime une prise de note dans un dictaphone*
-- jour 27 : Le sujet ne semble pas réagir à une stimulation ombilicale qu'elle ne remarque pas. Ce n'est donc pas un super pouvoir caché.
-- jour 35 : Le sujet ne tolère pas la stimulation ombilicale même si son attention est détournée par... hum... un autre stimulus _hausse les sourcils d'un air lubrique_
-- _avec des dents en moins_ jour 48 : J'ai trouvé un autre sujet qui ne tolère pas la stimulation ombilicale ! Penser à vérifier si ça affecte tous les videurs.
+- jour 4 : Le sujet ne semble pas réagir à une stimulation ombilicale qu'elle ne remarque pas. Ce n'est donc pas un super pouvoir caché.
+- jour 12 : Le sujet ne tolère pas la stimulation ombilicale même si son attention est détournée par... hum... un autre stimulus _hausse les sourcils d'un air lubrique_
+- _avec des dents en moins_ jour 18 : J'ai trouvé un autre sujet qui ne tolère pas la stimulation ombilicale ! Penser à vérifier si ça affecte tous les videurs.
 
 
 Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans, juste pour la voir accourir me l'enlever et savourer l'absurdité de cette situation en live.
