@@ -13,7 +13,7 @@ Pioché dans mes notes sur Keep.
 6. elle me retire mon doigt de mon nombril
 7. overdose d'absurdité
 8. expériences scientifiques
-9. la narguer de loin
+9. la narguer de loin, ça dégénère
 10. à l'hopital "tu vois, je le savais"
 
 # La bataille du nombril
