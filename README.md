@@ -1,3 +1,3 @@
 # Comedy notes
 
-[Premier sketch](./premier_sketch.md) : La bataille du nombril
+[Premier sketch](./la_bataille_du_nombril.md) : La bataille du nombril
