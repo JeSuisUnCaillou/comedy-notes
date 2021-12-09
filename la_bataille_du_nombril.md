@@ -20,17 +20,19 @@ Pioché dans mes notes sur Keep.
 
 - Y'a des gens en couple dans la salle ce soir ? (_Peu de réactions_ Ah ouais, vous êtes en chien)
 
-Je suis en couple depuis 2 ans maintenant, et j'ai découvert que dans un couple, il y a plein de petites batailles au quotidien. Il y en a qui sont importantes, et il y en a qui servent à rien. Il y en a que tu perds. Il y en a que tu gagnes. Souvent c'est celles qui servent à rien que je gagne.
+Je suis en couple depuis 2 ans maintenant, et j'ai découvert que dans un couple, il y a plein de petites batailles au quotidien. Il y en a qui sont importantes, et il y en a qui servent à rien. Il y en a que tu perds. Il y en a que tu gagnes.
 
-Moi je vais vous parler d'une bataille absurde j'ai eue avec ma copine : **La bataille du nombril.**
+D'ailleurs moi je ne gagne QUE les batailles inutiles. Exclusivement.
 
-Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si elle appuie dans son nombril ça va la rendre malade.
+Sauf une fois. Une fois, ma copine a gagné **La bataille du nombril.**. Je vous raconte :
+
+Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade. Quelle maladie ? ¯\\\_(ツ)\_/¯ On sait pas
 
 Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments qui ne marchent pas, voilà.
 
-J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout _d'un an de doigt-nombril quotidien_. Mais toujours pas !
+J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après _un an de doigt-nombril quotidien_, elle y croit toujours !
 
 Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
 
@@ -41,10 +43,10 @@ Mais c'est pas terminé !
 
 Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment la main pendant qu'elle parle, l'air de rien. J'ai mis quelques secondes à m'en rendre compte, et je la coupe : attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
 
-Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Tant d'absurdité condensée _dans la vie réelle_, j'ai fait une overdose d'absurde ! Ça m'a CASSÉ ! Je touche MON nombril, et ça la dérange !
+Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Tant d'absurdité condensée _dans la vie réelle_, j'ai fait une overdose d'absurde ! Ça m'a CASSÉ ! Je touche MON nombril, et ça la dérange ! *mime tête qui explose*
 
-Alors je me suis mis à faire des expériences scientifiques *mime une prise de note dans un dictaphone* :
-- jour 27 : Le sujet ne semble pas réagir à une stimulation ombilicale effectuée hors de son attention visuelle sur un corps étranger.
+Alors je me suis mis à faire des expériences scientifiques, avec un journal de bord et tout: *mime une prise de note dans un dictaphone*
+- jour 27 : Le sujet ne semble pas réagir à une stimulation ombilicale qu'elle ne remarque pas. Ce n'est donc pas un super pouvoir caché.
 - jour 35 : Le sujet ne tolère pas la stimulation ombilicale même si son attention est détournée par... hum... un autre stimulus _hausse les sourcils d'un air lubrique_
 - _avec des dents en moins_ jour 48 : J'ai trouvé un autre sujet qui ne tolère pas la stimulation ombilicale ! Penser à recontacter le videur du Macumba Night.
 
@@ -57,4 +59,6 @@ Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon 
 - attend tu me fait mal arr.. *CRAC* AAAAH !
 - Oh mon dieu ! ça va !
 - Oui ça va, je vais juste remettre mes intestins dedans comme ça NON CA VA PAS J'AI MAL PUTAIN
-- AHA ! Tu vois je te l'avais dit que c'était pas bon pour la santé
+
+Et là elle me sort :
+- Tu vois. Je te l'avais dit que c'était pas bon pour la santé
