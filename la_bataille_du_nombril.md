@@ -49,7 +49,7 @@ Alors je me suis mis à faire des expériences scientifiques *mime une prise de 
 - _avec des dents en moins_ jour 48 : J'ai trouvé un autre sujet qui ne tolère pas la stimulation ombilicale ! Penser à recontacter le videur du Macumba Night.
 
 
-Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans
+Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans, juste pour la voir accourir me l'enlever et savourer l'absurdité de cette situation en live.
 - na nana na na ! (doigt dans le nombril)
 - Accourt mais arrete (tire le doigt)
 - nan haha ! (force vers son ventre)
