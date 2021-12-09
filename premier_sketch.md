@@ -18,7 +18,7 @@ Pioché dans mes notes sur Keep.
 
 # La bataille du nombril
 
-- Y'a des gens en couple dans la salle ce soir ? _Peu de réactions_ Ah ouais, vous êtes en chien
+- Y'a des gens en couple dans la salle ce soir ? (_Peu de réactions_ Ah ouais, vous êtes en chien)
 
 Je suis en couple depuis 2 ans maintenant, et j'ai découvert que dans un couple, il y a plein de petites batailles au quotidien. Il y en a qui sont importantes, et il y en a qui servent à rien. Il y en a que tu perds. Il y en a que tu gagnes. Souvent c'est celles qui servent à rien que je gagne.
 
@@ -30,9 +30,9 @@ Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade. Quelle m
 
 Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments qui ne marchent pas, voilà.
 
-J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Donc moi, logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout _d'un an de doigt-nombril quotidien_. Mais toujours pas !
+J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout _d'un an de doigt-nombril quotidien_. Mais toujours pas !
 
-Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi. 
+Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
 
 
 Un jour, pour me faire arrêter, elle m'a expliqué que c'était juste désagréable pour elle, et que du coup je devais arrêter de le faire pour respecter un peu ses sentiments quoi. Ce qui s'entend, ce qui s'entend. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
@@ -48,8 +48,13 @@ Alors je me suis mis à faire des expériences scientifiques *mime une prise de 
 - jour 35 : Le sujet ne tolère pas la stimulation ombilicale même si son attention est détournée par... hum... un autre stimulus _hausse les sourcils d'un air lubrique_
 - _avec des dents en moins_ jour 48 : J'ai trouvé un autre sujet qui ne tolère pas la stimulation ombilicale ! Penser à recontacter le videur du Macumba Night.
 
-Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans "na nana na na !" juste pour la voir acccourir m'enlever le doigt, et savourer l'absurdité de cette situation en live.
 
-
-Une fois on est arrivé à se chamailler est tellement qu'elle aurait vraiment pu m'arracher un peu de peau de nombril en essayent de m'en retirer le doigt pendant que je forçait pour le garder dedans. Ce jour là, j'ai lâché l'affaire, par ce que sinon, une fois à l'hopital avec le nombril déchiré qui saigne de partout, elle m'aurait dit "AHA ! tu vois, je le _savais_"
-
+Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans
+- na nana na na ! (doigt dans le nombril)
+- Accourt mais arrete (tire le doigt)
+- nan haha ! (force vers son ventre)
+- Arrête-euuuuh (force encore plus)
+- attend tu me fait mal arr.. *CRAC* AAAAH !
+- Oh mon dieu ! ça va !
+- Oui ça va, je vais juste remettre mes intestins dedans comme ça NON CA VA PAS J'AI MAL PUTAIN
+- AHA ! Tu vois je te l'avais dit que c'était pas bon pour la santé
