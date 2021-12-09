@@ -27,9 +27,16 @@ Sauf une fois. Une fois, ma copine a gagné **La bataille du nombril.**. Je vous
 
 Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
 
-Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade. Quelle maladie ? ¯\\\_(ツ)\_/¯ On sait pas
+Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade. Ca donne quelle maladie ? Si on rappuie est-ce que ça annulle ? ¯\\\_(ツ)\_/¯
 
-Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments qui ne marchent pas, voilà.
+Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Vous savez comment sont les parents, hein :
+- Retire ton doigt ma chérie, c'est pas propre
+- Nan !
+- Retire ton doigt je te dis
+- Mais pourquoi maman ?
+- Par ce que sinon tu VAS MOURIR voilà
+
+Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments qui ne marchent pas, voilà.
 
 J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après _un an de doigt-nombril quotidien_, elle y croit toujours !
 
