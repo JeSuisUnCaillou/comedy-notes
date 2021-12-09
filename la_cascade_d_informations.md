@@ -21,3 +21,6 @@ A côté, y'a le boulimique de l'info la tête directement sous la cascade "Garg
 
 Le conspirationniste, lui il patague dans un marais d'eau dégueu. Et en fait y'a 3-4 personnes qui vont prendre un peu d'eau à la cascade de temps en temps, puis ils la font bien croupir et après ils la mettent dans leur marais qui shlingue, et le conspirationniste il vient boire ça comme de la grenadine quoi.
 Mais il kiffe pas ça, il trouve ça dégueu hein. Ca le rend malade même. Mais comme il a été introduit au goût du marais à petite dose, il s'est même pas rendu compte que ça lui flinguait le bide.
+
+
+tenter la cascade de diahrée ?
