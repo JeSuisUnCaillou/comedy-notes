@@ -16,7 +16,7 @@ Les grands médias, ils font comme toi en fait, juste ils sont plusieurs à teni
 Alors ils prennent ce qu'ils peuvent, et ils le déversent dans leur filtre spécial qui retient que ce qui arrange le propriétaire de la carafe.
 Et ils servent ça à leur audience en faisant genre que cette carafe d'eau, c'est les chutes du niagara entières. Et les gens y croient ! Surtout les plus vieux, par ce que eux dans leur jeunesse, y'avait pas cette cascade. L'information accessible à leur époque, c'était une carafe d'eau par jour, donc ça leur paraît pas déconnant.
 
-A côté, y'a le boulimique de l'info la tête sous la cascade "Garglglgrlglrgl". Lui il veut toujours être au courant de tout avant toi, il veut pouvoir t'étaler sa connaissance devant, alors que tout ce qu'il fait c'est de te pisser son trop plein d'eau dans la bouche.
+A côté, y'a le boulimique de l'info la tête directement sous la cascade "Garglglgrlglrgl". Lui il veut toujours être au courant de tout avant toi, il veut pouvoir t'étaler sa connaissance devant, alors que tout ce qu'il fait c'est de te pisser son trop plein d'eau dans la bouche.
 
 Le conspirationniste, lui il patague dans un marais d'eau dégueu. Et en fait y'a 3-4 personnes qui vont prendre un peu d'eau à la cascade de temps en temps, puis ils la font bien croupir et après ils la mettent dans leur marais qui shlingue, et le conspirationniste il vient boire ça comme de la grenadine quoi.
 Mais il kiffe pas ça, il trouve ça dégueu hein. Ca le rend malade même. Mais comme il a été introduit au goût du marais à petite dose, il s'est même pas rendu compte que ça lui flinguait le bide.
