@@ -23,16 +23,16 @@ Bonsoir, C'est ma première fois sur scène, et pour mon premier sketch j'ai dé
 
 Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
 
-Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade.
-Ca donne quelle maladie ? pffrt ¯\\\_(ツ)\_/¯
-Si on rappuie est-ce que ça annulle ? pffrt ¯\\\_(ツ)\_/¯
-
 Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Vous savez comment sont les parents, hein :
-- Retire ton doigt ma chérie, c'est pas propre
+- Retire ton doigt ma chérie, ça se fait pas
 - Nan !
 - Retire ton doigt je te dis
 - Mais pourquoi maman ?
 - Par ce que sinon tu VAS MOURIR voilà
+
+Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade.
+Ca donne quelle maladie ? pffrt ¯\\\_(ツ)\_/¯
+Si on rappuie est-ce que ça annulle ? pffrt ¯\\\_(ツ)\_/¯
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
