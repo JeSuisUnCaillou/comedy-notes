@@ -19,7 +19,7 @@ Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expl
 - Mais pourquoi maman ?
 - Par ce que sinon tu VAS MOURIR voilà
 
-Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade.
+Genre c'est un bouton qui rend malade quoi. Pas malade - BAM ! - malade.
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
