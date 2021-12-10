@@ -51,7 +51,7 @@ je suis sûr que des scientifiques pourraient faire une étude là dessus :
 J'ai toujours pas les réponses à ces questions, mais du coup maintenant régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans, juste pour la voir accourir :
 - na nana na na ! (doigt dans le nombril)
 - Accourt mais arrete (tire le doigt)
-- nan haha ! (force vers son ventre)
+- nan j'arrête pas nanana ! (force vers son ventre)
 - Arrête-euuuuh (force encore plus)
 - attend tu me fait mal arr.. *CRAC* AAAAH !
 - Oh merde ! ça va !
