@@ -16,7 +16,7 @@ Genre c'est un bouton qui rend malade quoi. Pas malade - **BAM !** - malade.
 
 Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Vous savez comment sont les parents, hein :
 - Retire ton doigt ma chérie, ça se fait pas
-- Nan !
+- Nan je retirerai pas mon doigt
 - Retire ton doigt je te dis
 - Mais pourquoi maman ?
 - Par ce que sinon tu VAS MOURIR voilà
@@ -28,7 +28,7 @@ J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têt
 Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
 
 
-Un jour, pour me faire arrêter, elle m'a expliqué que c'était juste désagréable pour elle, et que du coup je devais arrêter de le faire pour respecter un peu ses sentiments quoi. Ce qui s'entend, ce qui s'entend. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
+Un jour, pour me faire arrêter, elle m'a expliqué que j'avais pas besoin de comprendre pourquoi elle croyait ça, et que c'était juste désagréable pour elle, et que du coup je devais arrêter pour respecter un peu ses sentiments quoi. Ce qui s'entend, ce qui s'entend. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
 
 Mais c'est pas terminé !
 
