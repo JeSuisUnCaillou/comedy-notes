@@ -36,6 +36,10 @@ Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'a
 
 Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Je touche MON nombril, et ça la dérange ELLE ! *mime tête qui explose* J'ai des neurones qui se sont suicidés !
 
+_voix de neurone_
+- c'est trop absurde, adieu monde cruel ! Aaaaah !
+Ouais il se jette du haut de mon ego.
+
 Mais si elle ne _voit_ pas que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de _super pouvoir de détéction des contacts ombilicaux_ non plus.
 
 Nan c'est psychologique, voilà tout.
