@@ -59,7 +59,7 @@ Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon 
 - Oui ça va, je vais juste remettre mes intestins dedans comme ça NON CA VA PAS J'AI MAL PUTAIN
 
 Et dans l'ambulance, elle me fait doucement :
-- Je sais que c'est pas le bon moment mais... Je te l'avais dit que c'était pas bon pour la santé
+- Je sais que c'est pas le bon moment mais... (crie) Je te l'avais dit que c'était pas bon pour la santé
 
 
 Note : elle y croit pas vraiment, c'est juste devenu un truc qui la gêne sans forcément savoir pourquoi.
