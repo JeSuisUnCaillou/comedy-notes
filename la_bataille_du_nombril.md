@@ -19,11 +19,7 @@ Pioché dans mes notes sur Keep.
 
 - Y'a des gens en couple dans la salle ce soir ? (_Peu de réactions_ Ah ouais, vous êtes en chien)
 
-Je suis en couple depuis 2 ans maintenant, et j'ai découvert que dans un couple, il y a plein de petites batailles au quotidien. Il y en a qui sont importantes, et il y en a qui servent à rien. Il y en a que tu perds. Il y en a que tu gagnes.
-
-D'ailleurs moi je ne gagne QUE les batailles inutiles. Exclusivement.
-
-Aujourd'hui, je vais vous parler d'une bataille absudre que j'ai eu avec ma copine : **La bataille du nombril.**. Je vous raconte.
+Bonsoir, C'est ma première fois sur scène, et pour mon premier sketch j'ai décidé de vous parler d'un sujet de société capital : Le nombril de ma copine.
 
 Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
 
