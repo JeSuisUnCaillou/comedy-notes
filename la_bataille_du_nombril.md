@@ -45,9 +45,9 @@ J'ai quand même testé un truc important après ça : si elle ne _voit_ pas que
 Nan c'est juste psychologique, voilà tout.
 
 Mais ça soulève tant de questions...
-je suis sûr que des scientifiques pourraient faire une étude là dessus :
+Je suis sûr que des scientifiques pourraient faire une étude là dessus :
 - Est-ce qu'il y a _beaucoup_ de gens qui ont la phobie du contact ombilical comme ça ?
-- Dans la salle peut-être ? oui t'as hoché la tête ? Tu es bizarre, passe me voir à la fin du spectacle
+- Dans la salle peut-être ? oui t'as hoché la tête ? Tu passeras me voir à la fin du spectacle, hein, on va en discuter
 - Ca donne _quelle_ maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
 - (s'adresse au bizarre) Nan mais répond pas c'est un sketch
 - Mais surtout, la question la plus importante : Si on rappuie est-ce que ça _annulle_ la maladie, ou est-ce que ça la _double_ ?
