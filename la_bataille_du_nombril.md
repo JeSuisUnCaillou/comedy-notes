@@ -51,7 +51,7 @@ Mais c'est pas terminé !
 
 Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment la doigt pendant qu'elle parle, l'air de rien. J'ai mis quelques secondes à m'en rendre compte, et je la coupe : attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
 
-Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Tant d'absurdité condensée _dans la vie réelle_, j'ai fait une overdose ! Ça m'a CASSÉ ! Je touche MON nombril, et ça la dérange ELLE ! *mime tête qui explose*
+Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Je touche MON nombril, et ça la dérange ELLE ! *mime tête qui explose* J'ai des neurones qui se sont suicidés !
 
 Alors je me suis mis à faire des expériences scientifiques, pour tester les limites et tout: *mime une prise de note dans un dictaphone*
 - jour 4 : Le sujet ne semble pas réagir à une stimulation ombilicale qu'elle ne remarque pas. Ce n'est donc pas un super pouvoir caché.
