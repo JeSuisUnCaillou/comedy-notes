@@ -63,9 +63,8 @@ Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon 
 - attend tu me fait mal arr.. *CRAC* AAAAH !
 - Oh mon dieu ! ça va !
 - Oui ça va, je vais juste remettre mes intestins dedans comme ça NON CA VA PAS J'AI MAL PUTAIN
-- Ok ok j'appelle l'ambulance !
 
-Et dans l'ambulance :
+Et dans l'ambulance, elle me fait doucement :
 - Je sais que c'est pas le bon moment mais... Je te l'avais dit que c'était pas bon pour la santé
 
 
