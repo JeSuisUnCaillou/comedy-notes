@@ -71,3 +71,6 @@ Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon 
 
 Et dans l'ambulance :
 - Je sais que c'est pas le bon moment mais... Je te l'avais dit que c'était pas bon pour la santé
+
+
+Note : elle y croit pas vraiment, c'est juste devenu un truc qui la gêne sans forcément savoir pourquoi.
