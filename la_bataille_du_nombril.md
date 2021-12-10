@@ -42,7 +42,7 @@ Ouais il se jette du haut de mon ego.
 
 J'ai quand même testé un truc important après ça : si elle ne _voit_ pas que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de _super pouvoir de détéction des contacts ombilicaux_ non plus.
 
-Nan c'est psychologique, voilà tout.
+Nan c'est juste psychologique, voilà tout.
 
 Mais ça soulève tant de questions...
 je suis sûr que des scientifiques pourraient faire une étude là dessus :
@@ -60,6 +60,8 @@ J'ai toujours pas les réponses à ces questions, mais du coup maintenant régul
 - attend tu me fait mal arr.. *CRAC* AAAAH !
 - Oh merde ! ça va !
 - Oui ça va, je vais juste remettre mes intestins dedans comme ça NON CA VA PAS J'AI MAL PUTAIN
+
+DIII DAAA DIII DAAA
 
 Et dans l'ambulance, elle me fait doucement :
 - Je sais que c'est pas le bon moment mais... (crie) Je te l'avais dit que c'était pas bon pour la santé
