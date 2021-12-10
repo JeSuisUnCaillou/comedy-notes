@@ -4,16 +4,7 @@ Pioché dans mes notes sur Keep.
 
 
 ## Key points
-
-1. en couple, y'a des batailles
-2. elle me retire le doigt violamment
-3. les arguments rationnels ne marchent pas
-4. un an de doigt-nombril quotidien, super plan pour se faire aimer
-5. me demande d'arrêter par respect, ça s'entend
-6. c'est pas fini : elle me retire mon doigt de mon nombril
-7. overdose d'absurdité
-8. expériences scientifiques
-9. la narguer de loin, ça dégénère "tu vois, je le savais"
+a refaire
 
 # La bataille du nombril
 
@@ -31,8 +22,6 @@ Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expl
 - Par ce que sinon tu VAS MOURIR voilà
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - click- malade.
-Ca donne quelle maladie ? pffrt ¯\\\_(ツ)\_/¯
-Si on rappuie est-ce que ça annulle ? pffrt ¯\\\_(ツ)\_/¯
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
@@ -49,13 +38,18 @@ Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'a
 
 Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Je touche MON nombril, et ça la dérange ELLE ! *mime tête qui explose* J'ai des neurones qui se sont suicidés !
 
-Alors je me suis mis à faire des expériences scientifiques, pour tester les limites et tout: *mime une prise de note dans un dictaphone*
-- jour 4 : Le sujet ne semble pas réagir à une stimulation ombilicale qu'elle ne remarque pas. Ce n'est donc pas un super pouvoir caché.
-- jour 12 : Le sujet ne tolère pas la stimulation ombilicale même si son attention est détournée par... hum... un autre stimulus _hausse les sourcils d'un air lubrique_
-- _avec des dents en moins_ jour 18 : J'ai trouvé un autre sujet qui ne tolère pas la stimulation ombilicale ! Penser à vérifier si ça affecte tous les videurs.
+Mais si elle ne voit pas compte que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de _super pouvoir de détéction des contacts ombilicaux_ non plus.
 
+Nan c'est psychologique.
 
-Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans, juste pour la voir accourir me l'enlever et savourer l'absurdité de cette situation en live.
+Mais ça soulève tant de questions, je suis sûr que des scientifiques pourraient faire une étude là dessus :
+- Est-ce qu'il y a beaucoup de gens qui ont la phobie du contact ombilical comme ça ?
+- Dans la salle peut-être ? oui t'as hoché la tête ? Tu es bizarre, passe me voir à la fin du spectacle
+- Ca donne quelle maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
+- (s'adresse au bizarre) Nan mais répond pas c'est un sketch
+- Mais surtout, la question la plus importante : Si on rappuie est-ce que ça annulle la maladie, ou est-ce que ça la double ?
+
+Du coup maintenant, régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans, juste pour la voir accourir :
 - na nana na na ! (doigt dans le nombril)
 - Accourt mais arrete (tire le doigt)
 - nan haha ! (force vers son ventre)
