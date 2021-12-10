@@ -40,7 +40,7 @@ _voix de neurone_
 - c'est trop absurde, adieu monde cruel ! Aaaaah !
 Ouais il se jette du haut de mon ego.
 
-Mais si elle ne _voit_ pas que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de _super pouvoir de détéction des contacts ombilicaux_ non plus.
+J'ai quand même testé un truc important après ça : si elle ne _voit_ pas que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de _super pouvoir de détéction des contacts ombilicaux_ non plus.
 
 Nan c'est psychologique, voilà tout.
 
