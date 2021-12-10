@@ -8,8 +8,6 @@ a refaire
 
 # La bataille du nombril
 
-- Y'a des gens en couple dans la salle ce soir ? (_Peu de réactions_ Ah ouais, vous êtes en chien)
-
 Bonsoir, C'est ma première fois sur scène, et pour mon premier sketch j'ai décidé de vous parler d'un sujet de société capital : Le nombril de ma copine.
 
 Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
