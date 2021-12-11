@@ -14,7 +14,7 @@ Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une ré
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - **BAM !** - malade.
 
-Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Vous savez comment sont les parents, hein :
+Du coup moi j'ai commencé par rire, **beaucoup**, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Vous savez comment sont les parents, hein :
 - Retire ton doigt ma chérie, ça se fait pas
 - Nan je retirerai pas mon doigt
 - Retire ton doigt je te dis
@@ -23,7 +23,7 @@ Du coup moi j'ai commencé par rire, _beaucoup_, et je lui ai demandé de m'expl
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
-J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après _un an de doigt-nombril quotidien_, elle y croit toujours !
+J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après **un an de doigt-nombril quotidien**, elle y croit toujours !
 
 Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
 
@@ -34,30 +34,30 @@ Mais c'est pas terminé !
 
 Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment la doigt pendant qu'elle parle, l'air de rien. J'ai mis quelques secondes à m'en rendre compte, et je la coupe : attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
 
-Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _dans les films_. Je touche MON nombril, et ça la dérange ELLE ! *mime tête qui explose* J'ai des neurones qui se sont suicidés !
+Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _**dans les films**. Je touche MON nombril, et ça la dérange ELLE ! **mime tête qui explose** J'ai des neurones qui se sont suicidés !
 
 _voix de neurone_
 - c'est trop absurde, adieu monde cruel ! Aaaaah !
 Ouais il se jette du haut de mon ego.
 
-J'ai quand même testé un truc important après ça : si elle ne _voit_ pas que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de _super pouvoir de détéction des contacts ombilicaux_ non plus, ça va.
+J'ai quand même testé un truc important après ça : si elle ne **voit** pas que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de **super pouvoir de détéction des contacts ombilicaux** non plus, ça va.
 
 Nan c'est juste psychologique, voilà tout.
 
 Mais ça soulève tant de questions...
 Je suis sûr que des scientifiques pourraient faire une étude là dessus :
-- Est-ce qu'il y a _beaucoup_ de gens qui ont la phobie du contact ombilical comme ça ?
+- Est-ce qu'il y a **beaucoup** de gens qui ont la phobie du contact ombilical comme ça ?
 - Dans la salle peut-être ? oui t'as hoché la tête ? Tu passeras me voir à la fin du spectacle, hein, on va en discuter
-- Ca donne _quelle_ maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
+- Ca donne **quelle** maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
 - (s'adresse au bizarre) Nan mais répond pas c'est un sketch
-- Mais surtout, la question la plus importante : Si on rappuie est-ce que ça _annulle_ la maladie, ou est-ce que ça la _double_ ?
+- Mais surtout, la question la plus importante : Si on rappuie est-ce que ça **annulle** la maladie, ou est-ce que ça la **double** ?
 
 J'ai toujours pas les réponses à ces questions, mais du coup maintenant régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans, juste pour la voir accourir :
 - na nana na na ! (doigt dans le nombril)
 - Accourt mais arrete (tire le doigt)
 - nan j'arrête pas nanana ! (force vers son ventre)
 - Arrête-euuuuh (force encore plus)
-- attend tu me fait mal arr.. *CRAC* AAAAH !
+- attend tu me fait mal arr.. **CRAC** AAAAH !
 - Oh merde ! ça va !
 - Oui ça va, je vais juste remettre mes intestins dedans comme ça NON CA VA PAS J'AI MAL PUTAIN
 - En même temps, je te l'avais dit que c'était pas bon pour la santé
