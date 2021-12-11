@@ -34,7 +34,7 @@ Mais c'est pas terminé !
 
 Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment la doigt pendant qu'elle parle, l'air de rien. Attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
 
-Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _**dans les films**. Je touche MON nombril, et ça la dérange ELLE ! **mime tête qui explose** J'ai des neurones qui se sont suicidés !
+Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _**dans en fiction**. Je touche MON nombril, et ça la dérange ELLE ! **mime tête qui explose** J'ai des neurones qui se sont suicidés !
 
 _voix de neurone_
 - c'est trop absurde, adieu monde cruel ! Aaaaah !
