@@ -60,11 +60,7 @@ J'ai toujours pas les réponses à ces questions, mais du coup maintenant régul
 - attend tu me fait mal arr.. *CRAC* AAAAH !
 - Oh merde ! ça va !
 - Oui ça va, je vais juste remettre mes intestins dedans comme ça NON CA VA PAS J'AI MAL PUTAIN
-
-DIII DAAA DIII DAAA
-
-Et dans l'ambulance, elle me fait doucement :
-- Je sais que c'est pas le bon moment mais... (crie) Je te l'avais dit que c'était pas bon pour la santé
+- En même temps, je te l'avais dit que c'était pas bon pour la santé
 
 
 Note : elle y croit pas vraiment, c'est juste devenu un truc qui la gêne sans forcément savoir pourquoi.
