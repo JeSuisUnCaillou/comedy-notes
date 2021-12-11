@@ -19,7 +19,7 @@ Du coup moi j'ai commencé par rire, **beaucoup**, et je lui ai demandé de m'ex
 - Nan je retirerai pas mon doigt
 - Retire ton doigt je te dis
 - Mais pourquoi maman ?
-- Par ce que sinon tu VAS MOURIR voilà
+- Par ce que sinon tu VAS MOURIR alors fait pas chier
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
