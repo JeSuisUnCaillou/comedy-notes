@@ -23,12 +23,12 @@ Du coup moi j'ai commencé par rire, **beaucoup**, et je lui ai demandé de m'ex
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
-J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après **un an de doigt-nombril quotidien**, elle y croit toujours !
+J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après **un an de doigt-nombril quotidien**, elle n'a pas changé d'avis !
 
 Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
 
 
-Un jour, pour me faire arrêter, elle m'a expliqué que j'avais pas besoin de comprendre pourquoi elle croyait ça, et que c'était juste désagréable pour elle, et que du coup je devais arrêter pour respecter un peu ses sentiments quoi. Ce qui s'entend, ce qui s'entend. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
+Un jour, pour me faire arrêter, elle m'a expliqué que j'avais pas besoin de comprendre pourquoi elle croyait ça, et que c'était juste désagréable pour elle, et que du coup je devais arrêter pour respecter un peu ses sentiments quoi. Ce qui se comprend, hein, je comprends. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
 
 Mais c'est pas terminé !
 
