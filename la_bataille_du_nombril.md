@@ -48,7 +48,7 @@ Mais ça soulève tant de questions...
 Je suis sûr que des scientifiques pourraient faire une étude là dessus :
 - Est-ce qu'il y a **beaucoup** de gens qui ont la phobie du contact ombilical comme ça ?
 - Dans la salle peut-être ? oui t'as hoché la tête ? Tu passeras me voir à la fin du spectacle, hein, on va en discuter
-- Ca donne **quelle** maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
+- Autre question : Ca donne **quelle** maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
 - (s'adresse au bizarre) Nan mais répond pas c'est un sketch
 - Mais surtout, la question la plus importante : Si on rappuie est-ce que ça **annulle** la maladie, ou est-ce que ça la **double** ?
 
