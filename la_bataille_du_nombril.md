@@ -12,7 +12,7 @@ Bonsoir, C'est ma première fois sur scène, et pour mon premier sketch j'ai dé
 
 Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Elle m'a expliqué que c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
 
-Genre c'est un bouton qui rend malade quoi. Pas malade - **BAM !** - malade.
+Genre c'est un bouton qui rend malade quoi. Pas malade - **clic** - malade.
 
 Du coup moi j'ai commencé par rire, **beaucoup**, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite :
 - Retire ton doigt ma chérie, ça se fait pas
