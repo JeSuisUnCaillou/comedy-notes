@@ -69,7 +69,7 @@ J'ai toujours pas les réponses à ces questions, mais du coup maintenant régul
 - nan j'arrête pas nanana ! (force vers son ventre)
 - Arrête-euuuuh (force encore plus)
 - attend tu me fait mal arr.. **CRAC** AAAAH !
-- Oh merde ! ça va !
+- Oh merde ! ça va ?
 - Oui ça va, je vais juste remettre mes intestins dedans comme ça NON CA VA PAS J'AI MAL PUTAIN
 - En même temps, je te l'avais dit que c'était pas bon pour la santé
 
