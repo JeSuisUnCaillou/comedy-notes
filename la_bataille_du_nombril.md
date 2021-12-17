@@ -28,18 +28,18 @@ Et après c'est moi qui me tape les conséquences.
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
-J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après **un an de doigt-nombril quotidien**, elle y croit toujours !
+J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après **un an de doigt-nombril quotidien** sans tomber malade, elle n'est toujours pas convaincue !
 
 Ouais j'ai des super plans moi pour me faire aimer. Heureusement qu'elle est patiente avec moi.
 
 
-Un jour, pour me faire arrêter, elle m'a expliqué que j'avais pas besoin de comprendre pourquoi elle croyait ça, et que c'était juste désagréable pour elle, et que du coup je devais arrêter pour respecter un peu ses sentiments quoi. Ce qui s'entend, ce qui s'entend. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
+Un jour, pour me faire arrêter, elle m'a expliqué que j'avais pas besoin de comprendre pourquoi elle croyait ça, et que c'était juste désagréable pour elle, et que du coup je devais arrêter pour respecter un peu ses sentiments quoi. Ce qui se comprend, hein, je comprends. Donc moi j'arrête de le faire. J'arrête le doigt-nombril... Pas de soucis... Je suis quelqu'un de raisonnable, vous voyez ?
 
 Mais c'est pas terminé !
 
-Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment la doigt pendant qu'elle parle, l'air de rien. J'ai mis quelques secondes à m'en rendre compte, et je la coupe : attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
+Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment la doigt pendant qu'elle parle, l'air de rien. Attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
 
-Ca m'a rendu fou ! J'adore ça l'absurde hein, mais _**dans les films**. Je touche MON nombril, et ça la dérange ELLE ! **mime tête qui explose** J'ai des neurones qui se sont suicidés !
+Ca m'a rendu fou ! J'adore ça l'absurde hein, mais **en fiction**. Je touche MON nombril, et ça la dérange ELLE ! **mime tête qui explose** J'ai des neurones qui se sont suicidés !
 
 _voix de neurone_
 - c'est trop absurde, adieu monde cruel ! Aaaaah !
@@ -53,7 +53,7 @@ Mais ça soulève tant de questions...
 Je suis sûr que des scientifiques pourraient faire une étude là dessus :
 - Est-ce qu'il y a **beaucoup** de gens qui ont la phobie du contact ombilical comme ça ?
 - Dans la salle peut-être ? oui t'as hoché la tête ? Tu passeras me voir à la fin du spectacle, hein, on va en discuter
-- Ca donne **quelle** maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
+- Autre question : Ca donne **quelle** maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
 - (s'adresse au bizarre) Nan mais répond pas c'est un sketch
 - Mais surtout, la question la plus importante : Si on rappuie est-ce que ça **annulle** la maladie, ou est-ce que ça la **double** ?
 
