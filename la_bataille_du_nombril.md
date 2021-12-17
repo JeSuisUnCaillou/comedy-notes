@@ -26,9 +26,9 @@ Du coup moi j'ai commencé par rire, **beaucoup**, et je lui ai demandé de m'ex
 
 Et après c'est moi qui me tape les conséquences.
 
-Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
+Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, ... c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
-J'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après **un an de doigt-nombril quotidien** sans tomber malade, elle n'est toujours pas convaincue !
+Donc j'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça. En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après **un an de doigt-nombril quotidien** sans tomber malade, elle n'est toujours pas convaincue !
 
 Ouais j'ai des super plans moi pour me faire aimer.
 
@@ -52,9 +52,16 @@ Mais ça soulève tant de questions...
 Je suis sûr que des scientifiques pourraient faire une étude là dessus :
 - Est-ce qu'il y a **beaucoup** de gens qui ont la phobie du contact ombilical comme ça ?
 - Dans la salle peut-être ? oui t'as hoché la tête ? Tu passeras me voir à la fin du spectacle, hein, on va en discuter
-- Autre question : Ca donne **quelle** maladie exactement ? C'est une bonne question ça : Un rhume ? Un cancer ? Le sida ?
-- (s'adresse au bizarre) Nan mais répond pas c'est un sketch
-- Mais surtout, la question la plus importante : Si on rappuie est-ce que ça **annulle** la maladie, ou est-ce que ça la **double** ?
+- Autre question : Ca donne **quelle** maladie exactement ? (s'adresse au bizarre) Nan mais répond pas c'est un sketch
+- Autre question : Si on rappuie **clic clic** est-ce que ça **annulle** la maladie ? Si oui alors il faut que je tienne les compte pour toujours finir sur un nombre pair, c'est la galère.
+- Ou alors, si on rappuie est-ce que ça **double** la gravité de la maladie ?
+  - **click** un rhume
+  - **click** le sida ?
+  - **click** un cancer ??
+  - **click** _s'évanouit_
+  - ...
+  - **click** rebooting system _reprend sa pose_
+  - _regarde son nombril incrédule_ **click** Démarrage de la fin du sketch (et reprend normalement l'air de rien)
 
 J'ai toujours pas les réponses à ces questions, mais du coup maintenant régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans, juste pour la voir accourir :
 - na nana na na ! (doigt dans le nombril)
@@ -68,3 +75,4 @@ J'ai toujours pas les réponses à ces questions, mais du coup maintenant régul
 
 
 Note : elle y croit pas vraiment, c'est juste devenu un truc qui la gêne sans forcément savoir pourquoi.
+ReNote : sa mère lui a dit ça pour éviter qu'elle prenne l'habitude de se mettre des trucs dans le nombril (genre après elle y va à l'aubergine je sais pas)
