@@ -10,7 +10,7 @@ a refaire
 
 Bonsoir, C'est ma première fois sur scène, et pour mon premier sketch j'ai décidé de vous parler d'un sujet de société capital : Le nombril de ma copine.
 
-Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Alors moi je suis là "euuuh okhé ?" Je m'attendais pas du tout à ça. En lui demandant, elle m'a expliqué : c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
+Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Elle m'a expliqué que c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - **BAM !** - malade.
 
