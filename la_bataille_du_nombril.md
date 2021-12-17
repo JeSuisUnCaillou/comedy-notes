@@ -1,13 +1,10 @@
-# Premier sketch
-
-## Key points
+# La bataille du nombril
+**Key points**
 - Le doigt dans le nombril ça rend malade
 - Un an de doigt nombril quotidien
 - Mon propre nombril la gène
 - Les questions scientifiques
 - La bataille de fin
-
-# La bataille du nombril
 
 ## Le doigt dans le nombril ça rend malade
 
