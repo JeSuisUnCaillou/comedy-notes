@@ -1,9 +1,15 @@
 # Premier sketch
 
 ## Key points
--
+- Le doigt dans le nombril ça rend malade
+- Un an de doigt nombril quotidien
+- Mon propre nombril la gène
+- Les questions scientifiques
+- La bataille de fin
 
 # La bataille du nombril
+
+## Le doigt dans le nombril ça rend malade
 
 Bonsoir, C'est ma première fois sur scène, et pour mon premier sketch j'ai décidé de vous parler d'un sujet de société capital : Le nombril de ma copine.
 
@@ -23,6 +29,9 @@ Elle m'a aussi expliqué que c'était sa mère lui avait dit ça quand elle éta
 
 Et après c'est moi qui me tape les conséquences.
 
+
+## Un an de doigt nombril quotidien
+
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, ... c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
 Donc j'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça **mime un doigt dans le cul** en me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment.
@@ -34,6 +43,9 @@ Ouais j'ai des super plans moi pour me faire aimer.
 Un jour, pour me faire arrêter, elle m'a expliqué que j'avais pas besoin de comprendre pourquoi elle croyait ça, et que c'était juste désagréable pour elle, et que du coup je devais arrêter pour respecter un peu ses sentiments quoi. Donc moi j'étais là "Ah ok désolé, je m'excuse. J'arrête." J'arrête le doigt-nombril. Un peu de respect quoi.
 
 Mais c'est pas terminé !
+
+
+## Mon propre nombril la gène
 
 Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment la doigt pendant qu'elle parle, l'air de rien. Attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
 
@@ -47,8 +59,10 @@ J'ai quand même testé un truc important après ça : si elle ne **voit** pas q
 
 Nan c'est juste psychologique, voilà tout.
 
-Mais ça soulève tant de questions...
-Je suis sûr que des scientifiques pourraient faire une étude là dessus :
+
+## Les questions scientifiques
+
+Mais ça soulève tant de questions... Je suis sûr que des scientifiques pourraient faire une étude là dessus :
 - Est-ce qu'il y a **beaucoup** de gens qui ont la phobie du contact ombilical comme ça ?
 - Dans la salle peut-être ? oui t'as hoché la tête ? Tu passeras me voir à la fin du spectacle, hein, on va en discuter
 - Autre question : Ca donne **quelle** maladie exactement ? (s'adresse au bizarre) Nan mais répond pas c'est un sketch
@@ -62,6 +76,9 @@ Je suis sûr que des scientifiques pourraient faire une étude là dessus :
   - **click** rebooting system _reprend sa pose_
   - _regarde son nombril incrédule_ **click** Démarrage de la fin du sketch (et reprend normalement l'air de rien)
 
+
+## La bataille de fin
+
 J'ai toujours pas les réponses à ces questions, mais du coup maintenant régulièrement, je la nargue en mettant mon doigt dans mon nombril, comme un enfant de 4 ans, juste pour la voir accourir :
 - na nana na na ! (doigt dans le nombril)
 - Accourt mais arrete (tire le doigt)
@@ -73,5 +90,5 @@ J'ai toujours pas les réponses à ces questions, mais du coup maintenant régul
 - En même temps, je te l'avais dit que c'était pas bon pour la santé
 
 
-Note : elle y croit pas vraiment, c'est juste devenu un truc qui la gêne sans forcément savoir pourquoi.
-ReNote : sa mère lui a dit ça pour éviter qu'elle prenne l'habitude de se mettre des trucs dans le nombril (genre après elle y va à l'aubergine je sais pas)
+Note : Elle y croit pas vraiment, c'est juste devenu un truc qui la gêne sans forcément savoir pourquoi.
+ReNote : Sa mère lui a dit ça pour éviter qu'elle prenne l'habitude de se mettre des trucs dans le nombril (genre après elle y va à l'aubergine je sais pas)
