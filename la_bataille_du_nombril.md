@@ -25,9 +25,9 @@ Et après c'est moi qui me tape les conséquences.
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, ... c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
-Donc j'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça **mime un doigt dans le cul**.
+Donc j'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça **mime un doigt dans le cul** en me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment.
 
-En me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment. Mais même après **un an de doigt-nombril quotidien** sans tomber malade, elle n'est toujours pas convaincue !
+Mais même après **un an de doigt-nombril quotidien** sans tomber malade, elle n'est toujours pas convaincue !
 
 Ouais j'ai des super plans moi pour me faire aimer.
 
