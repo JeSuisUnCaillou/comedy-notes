@@ -43,7 +43,7 @@ Ca m'a rendu fou ! J'adore ça l'absurde hein, mais **en fiction**. Je touche MO
 
 _voix de neurone_
 - c'est trop absurde, adieu monde cruel ! Aaaaah !
-Ouais il se jette du haut de mon ego.
+Celui là il se jette du haut de mon ego.
 
 J'ai quand même testé un truc important après ça : si elle ne **voit** pas que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de **super pouvoir de détéction des contacts ombilicaux** non plus, ça va.
 
