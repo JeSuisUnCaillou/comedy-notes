@@ -14,12 +14,17 @@ Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une ré
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - **BAM !** - malade.
 
-Du coup moi j'ai commencé par rire, **beaucoup**, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite. Vous savez comment sont les parents, hein :
+Du coup moi j'ai commencé par rire, **beaucoup**, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite :
 - Retire ton doigt ma chérie, ça se fait pas
-- Nan je retirerai pas mon doigt
-- Retire ton doigt je te dis
-- Mais pourquoi maman ?
-- Par ce que sinon tu VAS MOURIR voilà
+- Attrape moi d'abord hihihi
+- Mais reviens là !
+- Haha, nan !
+- Reviens **han han** reviens ! Sale gosse
+- Tu m'attraperas jamais maman
+- **han han** Bon. **avec les mains en porte voix** Tu te souviens de Papi ? Papi qui est mort ? Eh ben si tu met ton doigt dans ton ombril, tu vas finir comme papi, c'est CA QUE TU VEUX ?
+- Hhhh ! **gros yeux effrayés, retire son doigt**
+
+Et après c'est moi qui me tape les conséquences.
 
 Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arguments rationnels. Les arguments rationnels hein, pour ceux qui connaissent pas, c'est mmmh comment dire... c'est les arguments **qui ne marchent pas**, voilà.
 
