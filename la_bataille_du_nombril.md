@@ -1,10 +1,7 @@
 # Premier sketch
 
-Pioché dans mes notes sur Keep.
-
-
 ## Key points
-a refaire
+-
 
 # La bataille du nombril
 
@@ -14,7 +11,7 @@ Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une ré
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - **clic** - malade.
 
-Du coup moi j'ai commencé par rire, **beaucoup**, et je lui ai demandé de m'expliquer pourquoi elle croyait ça. Elle m'a répondu que sa mère lui avait dit ça quand elle était petite :
+Elle m'a aussi expliqué que c'était sa mère lui avait dit ça quand elle était petite :
 - Retire ton doigt ma chérie, ça se fait pas
 - Attrape moi d'abord hihihi
 - Mais reviens là !
