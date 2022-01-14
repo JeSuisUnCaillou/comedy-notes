@@ -68,7 +68,7 @@ Mais ça soulève tant de questions... Je suis sûr que des scientifiques pourra
 - Est-ce qu'il y a **beaucoup** de gens qui ont la phobie du contact ombilical comme ça ?
 - Dans la salle peut-être ? oui t'as hoché la tête ? Tu passeras me voir à la fin du spectacle, hein, on va en discuter
 - Autre question : Ca donne **quelle** maladie exactement ? (s'adresse au bizarre) Nan mais répond pas c'est un sketch
-- Autre question : Si on rappuie **clic clic** est-ce que ça **annulle** la maladie ? Si oui alors il faut que je tienne les compte pour toujours finir sur un nombre pair, c'est la galère.
+- Autre chose : Si on rappuie **clic clic** est-ce que ça **annulle** la maladie ? Si oui alors il faut que je tienne les compte pour toujours finir sur un nombre pair, c'est la galère.
 - Ou alors, si on rappuie est-ce que ça **double** la gravité de la maladie ?
   - **click** un rhume
   - **click** le sida ?
