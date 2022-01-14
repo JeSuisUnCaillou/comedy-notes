@@ -16,7 +16,7 @@ Du coup on en discute, et elle m'explique que c'est par ce qu'elle pense que si 
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - **clic** - malade.
 
-Elle m'a aussi expliqué que c'était sa mère lui avait dit quand elle était petite :
+Apparemment c'est sa mère lui a dit quand elle était petite :
 - Retire ton doigt de ton nombril ma chérie, ça se fait pas
 - Mais pourquoi maman ?
 - Parce que.
@@ -24,7 +24,7 @@ Elle m'a aussi expliqué que c'était sa mère lui avait dit quand elle était p
 - Parce que c'est tout.
 - **se triture le nombril en tortillant une cheville** Par ce que c'est tout quuooouuuaaa ?
 - **soupir** Tu sais, je vaulais pas te le dire, mais... tu te souviens de l'enterrement de papi la semaine dernière ? Eh ben il est MORT par ce qu'il a trop mis son DOIGT dans son NOMBRIL, voila !
-- Hhhh ! **gros yeux effrayés, retire son doigt**
+- Hhhh ! **gros yeux effrayés, retire son doigt** Ok j'arrête
 
 Et après c'est moi qui me tape la rééducation.
 
