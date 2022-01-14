@@ -14,7 +14,7 @@ C'est ma première fois sur scène, et pour mon premier sketch j'ai décidé de 
 
 Un jour pour déconner j'ai mis mon doigt dans son nombril et elle m'a dégagé genre "NAN ! han !" Beaucoup trop violent pour un doight dans le nombril quoi, genre vraiment !
 
-Du coup on en discute, et elle m'explique que c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
+Du coup on en discute, et elle m'explique que c'est par ce qu'elle pense que si on met mon doigt - un doigt - n'importe quel doigt d'ailleurs, même un doigt que j'aurais coupé à quelqu'un comme ça BREF - si je met **UN** doigt dans son nombril ça va la rendre malade.
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - **clic** - malade.
 
