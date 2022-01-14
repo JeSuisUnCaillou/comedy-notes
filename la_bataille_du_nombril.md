@@ -35,24 +35,27 @@ Alors moi j'ai essayé de lui expliquer que c'était n'importe quoi avec des arg
 
 Donc j'ai pas réussi à la convaincre, 'faut dire qu'elle est quand même assez têtue. Et moi je suis un emmerdeur, donc logique, je me met à lui glisser un doigt dans le nombril quotidiennement, comme ça **mime un doigt dans le cul** en me disant qu'elle verra bien qu'elle tombe pas malade là, au bout moment.
 
-Mais même après **un an de doigt-nombril quotidien** sans tomber malade, elle n'est toujours pas convaincue !
+Mais même après **un an de doigt-nombril quotidien**, sans tomber malade hein, elle n'est toujours pas convaincue !
 
 Ouais j'ai des super plans moi pour me faire aimer.
 
-Un jour, pour me faire arrêter, elle m'a expliqué que j'avais pas besoin de comprendre pourquoi elle croyait ça, et que c'était juste désagréable pour elle, et que du coup je devais arrêter pour respecter un peu ses sentiments quoi. Donc moi j'étais là "Ah ok désolé, je m'excuse. J'arrête." J'arrête le doigt-nombril. Un peu de respect quoi.
+Un jour elle m'a expliqué que j'avais pas besoin de **comprendre** pourquoi elle croyait ça, et que juste de savoir que c'est désagréable pour elle devrait me faire arrêter. Et comme je suis un emmerdeur de 32 ans, avec l'expérience je commence un peu à entrevoir les limites de l'emmerdement maximum.
 
-Mais c'est pas terminé !
+Donc j'arrête le doigt-nombril.
+Nan mais c'est vrai, faut respecter le corps de l'autre quand même.
+
+Mais l'histoire ne s'est pas arrêtée là. Ah bah non, ça serait trop normal là.
 
 
 ## Mon propre nombril la gène
 
-Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment la doigt pendant qu'elle parle, l'air de rien. Attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
+Un jour j'étais allongé à côté d'elle, on discutait tranquille, et puis j'ai mis mon doigt dans mon propre nombril, juste pour rien quoi, j'y pensais même pas. Et là elle me retire gentiment le doigt pendant qu'elle parle, l'air de rien. Attends attends attends... ça te met TOI mal à l'aise si JE met mon doigt dans MON nombril ?
 
 Ca m'a rendu fou ! J'adore ça l'absurde hein, mais **en fiction**. Je touche MON nombril, et ça la dérange ELLE ! **mime tête qui explose** J'ai des neurones qui se sont suicidés !
 
 _voix de neurone_
 - c'est trop absurde, adieu monde cruel ! Aaaaah !
-Celui là il se jette du haut de mon ego.
+Il s'est jetté du haut de mon ego.
 
 J'ai quand même testé un truc important après ça : si elle ne **voit** pas que j'appuie sur mon nombril, ça ne la dérange pas. Elle n'a pas de **super pouvoir de détéction des contacts ombilicaux** non plus, ça va.
 
