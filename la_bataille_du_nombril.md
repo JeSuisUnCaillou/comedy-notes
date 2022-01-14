@@ -39,7 +39,7 @@ Mais même après **un an de doigt-nombril quotidien**, sans tomber malade hein,
 
 Ouais j'ai des super plans moi pour me faire aimer.
 
-Un jour elle m'a expliqué que j'avais pas besoin de **comprendre** pourquoi elle croyait ça, et que juste de savoir que c'est désagréable pour elle devrait me faire arrêter. Et comme je suis un emmerdeur de 32 ans, avec l'expérience je commence un peu à entrevoir les limites de l'emmerdement maximum.
+Un jour elle m'a même expliqué que j'avais pas besoin de **comprendre** pourquoi elle croyait ça, et que juste de savoir que c'est désagréable pour elle devrait me faire arrêter. Et comme je suis un emmerdeur de 32 ans, avec l'expérience je commence un peu à entrevoir les limites de l'emmerdement maximum.
 
 Donc j'arrête le doigt-nombril.
 Nan mais c'est vrai, faut respecter le corps de l'autre quand même.
