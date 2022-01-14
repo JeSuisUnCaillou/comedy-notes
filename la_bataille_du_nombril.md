@@ -10,21 +10,23 @@
 
 Bonsoir, C'est ma première fois sur scène, et pour mon premier sketch j'ai décidé de vous parler d'un sujet de société capital : Le nombril de ma copine.
 
-Un jour pour déconner j'ai mis mon doigt dans son nombril eeeeet elle a une réaction assez forte pour me dégager ! Presque violente quoi ! Elle m'a expliqué que c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
+Un jour pour déconner j'ai mis mon doigt dans son nombril et elle m'a dégagé genre "NAN ! han !", beaucoup trop violent pour un doight dans le nombril quoi !
+
+Du coup on en discute, et elle m'explique que c'est par ce qu'elle pense que si on met un doigt dans son nombril ça va la rendre malade.
 
 Genre c'est un bouton qui rend malade quoi. Pas malade - **clic** - malade.
 
-Elle m'a aussi expliqué que c'était sa mère lui avait dit ça quand elle était petite :
-- Retire ton doigt ma chérie, ça se fait pas
-- Attrape moi d'abord hihihi
-- Mais reviens là !
-- Haha, nan !
-- Reviens **han han** reviens ! Sale gosse
-- Tu m'attraperas jamais maman
-- **han han** Bon. **avec les mains en porte voix** Tu te souviens de Papi ? Papi qui est mort ? Eh ben si tu met ton doigt dans ton ombril, tu vas finir comme papi, c'est CA QUE TU VEUX ?
+Elle m'a aussi expliqué que c'était sa mère lui avait dit quand elle était petite :
+- Retire ton doigt de ton nombril ma chérie, ça se fait pas
+- Mais pourquoi maman ?
+- Parce que.
+- ... Parce que quoouuuuaaaa ?
+- Parce que c'est tout.
+- **se triture le nombril en tortillant une cheville** Par ce que c'est tout quuooouuuaaa ?
+- **soupir** Tu sais, je vaulais pas te le dire, mais... tu te souviens de l'enterrement de papi la semaine dernière ? Eh ben il est MORT par ce qu'il a trop mis son DOIGT dans son NOMBRIL, voila !
 - Hhhh ! **gros yeux effrayés, retire son doigt**
 
-Et après c'est moi qui me tape les conséquences.
+Et après c'est moi qui me tape la rééducation.
 
 
 ## Un an de doigt nombril quotidien
